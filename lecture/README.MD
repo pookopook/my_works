@@ -1,1 +1,0 @@
-lecture note here
